@@ -19,3 +19,5 @@
 ## Wray
 
 ## ROME HAS SPOKEN
+
+## WRAY HAS SPOKEN TWICE
