@@ -16,8 +16,6 @@
 
 ## Weir
 
-## Wray
-- Good lord!
-## ROME HAS SPOKEN
+## This would've been my name, but now you've been bamboozled.
 
-## WRAY HAS SPOKEN TWICE
+## ROME HAS SPOKEN
